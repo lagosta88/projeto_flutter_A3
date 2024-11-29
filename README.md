@@ -1,1 +1,19 @@
-# projeto_flutter_A3
+#PROJETO A3 VIDEO DE APRESENTAÇÃO E GRUPO
+
+Lucca Serra de Melo Reis
+
+Ra:1272116626
+
+Thiago nunes da cruz lucas
+
+RA: 722421909
+
+Kaliane Vitoria Oliveira Baccetti
+
+RA: 823156445
+
+José Antônio Lucas Júnior
+
+RA: 722421785
+
+VIDEO APRESENTAÇÃO :Clique aqui para ver o video
