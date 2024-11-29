@@ -16,4 +16,8 @@ José Antônio Lucas Júnior
 
 RA: 722421785
 
+Bismarck Gabriel da silva
+
+RA: 1352321373
+
 VIDEO APRESENTAÇÃO :[Clique aqui para ver o video](https://drive.google.com/file/d/1CvBXP-r9AEKCsuKeivsFSK_sbhKQ_-4_/view?usp=drive_link)
